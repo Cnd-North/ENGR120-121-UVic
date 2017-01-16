@@ -15,4 +15,4 @@ I hope you find this helpful, and tell you're friends cause engineering is all a
 
 
 Keep it fresh!
-Gerrit van Rensburg A.K.A Haddit A.K.A Hadreezy
+Haddit A.K.A Hadreezy
